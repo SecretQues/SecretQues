@@ -8,4 +8,4 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
-[STRAW](https://youtu.be/ZstsPUKT5CI?si=1YZiID11M72mj2vh)  ✦ [PRNS](https://prns.cc/qbykw) ╱ [ATA](https://bleho.atabook.org/)
+[STRAW](https://youtu.be/ZstsPUKT5CI?si=1YZiID11M72mj2vh)  ✦ [PRNS](https://pronouns.cc/@questo) ╱ [ATA](https://bleho.atabook.org/)
