@@ -8,4 +8,4 @@
 
 ━━━━━━ ◦ ♡ ◦ ━━━━━━
 
-[STRAW](https://sikyd.straw.page)  ✦ [PRNS](https://prns.cc/qbykw) ╱ [ATA](https://guns.lol/thatmobll)
+[STRAW](https://sikyd.straw.page)  ✦ [PRNS](https://prns.cc/qbykw) ╱ [ATA](bleho.atabook.org)
